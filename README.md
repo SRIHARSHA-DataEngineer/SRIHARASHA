@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sriharshadev007@@gmail.com**
 
-- ⚡ Fun fact **I love experimenting with new programming languages – every line of code is an adventure in creativity and innovation!**
+- ⚡ Fun fact **"I love experimenting with new programming languages – every line of code is an adventure in creativity and innovation!"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
